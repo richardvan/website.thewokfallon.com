@@ -1,2 +1,2 @@
 # website.thewokfallon.com
-The Wok Restaurant: Chinese and Sushi Restaurant
+The Wok Restaurant: Chinese and Sushi Restaurant 2
